@@ -1,6 +1,6 @@
 ### Hey 👊🏼
 
-- 🌌 I came from another world
-- 🎮 Video game player in his spare time 
-- 🍉 I love watermelon 
+- 🌌  I came from another world.
+- 🍉  I love watermelon. 
+- 🎮  Video game player in his spare time.  
 - Programming is evolution, knowledge and culture.
