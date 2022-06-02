@@ -1,4 +1,3 @@
-### Seja Bem-Vindo 👊🏼 
 
 <div>
   <a href="https://github.com/kevinaraujx">
